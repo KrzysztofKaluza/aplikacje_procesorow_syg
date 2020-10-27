@@ -1,0 +1,2 @@
+# aplikacje_procesorow_syg
+University class of aplikacje_procesorow_syg
